@@ -1,1 +1,1 @@
-学习笔记
+Prepare for a interview this week
